@@ -7,7 +7,5 @@ Handmade, Crafts, Sustainablity...
 
 
 
-
-
-
 ### Categories
+Handmade, Crafts, Sustainablity...
